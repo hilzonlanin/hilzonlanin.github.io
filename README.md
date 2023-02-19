@@ -1,3 +1,0 @@
-# hilzonlanin.github.io
-
-## homepage
